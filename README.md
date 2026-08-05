@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **10952384@students.plymouth.ac.uk**
 
-- ⚡ Fun fact **Call me as Mossad**
+  
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
